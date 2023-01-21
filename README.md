@@ -1,2 +1,2 @@
-# zalupa
+# friend for me it's a....
 It's my first experience
